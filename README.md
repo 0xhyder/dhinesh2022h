@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dhinesh2022h.
-- 👀 I’m interested in AR/VR.
+- 👀 I’m interested in .
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me www.linkedin.com/in/dhinesh2022h.
